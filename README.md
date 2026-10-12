@@ -1,6 +1,6 @@
 # Hey, I'm Randeep 👋
 
-🎓 BBA Student at Manav Rachna International Institute
+🎓 BBA Student at Manav Rachna International Institute of Research and Studies
 
 📈 Aspiring Digital Marketer
 
